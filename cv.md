@@ -1,5 +1,5 @@
 # Adomas Surmickis
-## Contact Info (add several ways to contact you)
+## Contact Info
  Email: adomas.surmickis@gmail.com
 
 ## PERSONAL SUMMARY
